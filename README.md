@@ -8,4 +8,4 @@
 ![](https://files.catbox.moe/cxl56v.png)
 
 [👑](https://rentry.co/joyfulthoughts)ㅤ 
-<img src="https://komarev.com/ghpvc/?username=archpup&label=✧⠀󠀠˖⠀󠀠°⠀󠀠puppies&color=a0cce9&style=plastic"> </p>
+<img src="https://komarev.com/ghpvc/?username=archpup&label=✧⠀󠀠˖⠀󠀠°⠀󠀠puppies&color=a0cce9&style=plastic"> </p> [<img width="310" src="https://lastfm.dedomil.workers.dev/moroiis?dark">](https://last.fm/user/moroiis)
