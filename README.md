@@ -6,10 +6,10 @@
 
 ![](https://komarev.com/ghpvc/?username=archpup&label=　☆　&color=a0cce9)
 
- <br>archie/bon/moroi <br> (S)he any Ask <br><br> every bonnie irl <br> feel free to int or c+h <br><br> profic/darkship, iwec <br> ++ dni antis <br> basic criteria <br><br><img src="https://files.catbox.moe/oz6plp.png"/><br><br>
+ <br>archie/bon/moroi <br> (S)he any Ask <br><br> every bonnie irl <br> feel free to int <br> C+H Enc !!! no need 2 ask :-) <br><br><img src="https://files.catbox.moe/oz6plp.png"/><br><br>
 
  
-sign my [atabook](https://archie.atabook.org/)!! and if you wanna know <br> more about me you can browse my [rentries](https://rentry.co/laid) :-)
+sign my [atabook](https://archie.atabook.org/)!! and if you wanna know <br> more about me you can browse my [rentries](https://rentry.co/laid) ^w^
 
 
 
