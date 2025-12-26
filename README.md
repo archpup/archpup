@@ -22,3 +22,5 @@ i get very nervous when chatting but if u int i wont bite!!
 
   <a href="https://last.fm/user/moroiis">
     <img width="310" src="https://lastfm.dedomil.workers.dev/moroiis?dark">
+
+![image](https://github.com/user-attachments/assets/b4f8ffa7-36d3-42cd-89e0-ff43cd882b02)
