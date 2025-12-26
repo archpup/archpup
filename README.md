@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=archpup&label=✧⠀󠀠˖⠀󠀠°⠀󠀠puppies&color=a0cce9&style=plastic")<br><sub>``( Account used for Pony Town ! )``
+![](https://komarev.com/ghpvc/?username=archpup&label=✧⠀󠀠˖⠀󠀠°⠀󠀠puppies&color=a0cce9&style=plastic") <a href="https://rentry.co/joyfulthoughts">👑</a> <br><sub>``( Account used for Pony Town ! )``
 
 ![image](https://files.catbox.moe/cxl56v.png)
 
