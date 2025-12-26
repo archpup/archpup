@@ -7,4 +7,5 @@
 
 ![](https://files.catbox.moe/cxl56v.png)
 
-<img src="https://komarev.com/ghpvc/?username=archpup&label=✧⠀󠀠˖⠀󠀠°⠀󠀠puppies&color=a0cce9&style=plastic"> </p> [👑](https://rentry.co/joyfulthoughts)ㅤ 
+[👑](https://rentry.co/joyfulthoughts)ㅤ 
+<img src="https://komarev.com/ghpvc/?username=archpup&label=✧⠀󠀠˖⠀󠀠°⠀󠀠puppies&color=a0cce9&style=plastic"> </p>
