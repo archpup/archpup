@@ -1,22 +1,24 @@
 ![](https://komarev.com/ghpvc/?username=archpup&label=✧⠀󠀠˖⠀󠀠°⠀󠀠puppies&color=a0cce9&style=plastic")<br><sub>``( Account used for Pony Town ! )``
 
-
-<p align="center">    c+h is encouraged !! IWCAU !!
-<p align="center"> usually offtab/afk so i might not see whispers
-<p align="center"> <a href="https://archie.atabook.org/">sign ata</a>ㅤㅤ ,  <a href="https://rentry.co/laid">rentry</a> <br>
-<p align="center"> <a href="https://rentry.co/joyfulthoughts">👑</a> 
+![image](https://files.catbox.moe/cxl56v.png)
 
 
-<p align="center"> <img src=https://files.catbox.moe/cxl56v.png>
-<p align="center"> me & twin ⤴︎
 
-   <p align="center"> 
-—————————————　✦　—————————————
-<br>
+### ----------------------------------------------------------------------------------
+C+H ok + encouraged!!! no need 2 ask :-) 
 
-<p align="center">
+usually offtab/afk so i might not see whispers
+
+i get very nervous when chatting but if u int i wont bite!! 
+  
+     " Aren't I just the SHINIEST! "
+[sign ata](https://archie.atabook.org/)
+
+[rentry](https://rentry.co/laid)
+ 
+
+
+
+
   <a href="https://last.fm/user/moroiis">
     <img width="310" src="https://lastfm.dedomil.workers.dev/moroiis?dark">
-  </a>
-</p>
-
