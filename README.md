@@ -1,7 +1,7 @@
 ``( Account used for Pony Town ! )``
 <div align="center"/>
   
-<img width="1280" height="512" alt="image" src="https://files.catbox.moe/uxp903.png" />
+<img width="1280" height="512" alt="image" src="https://files.catbox.moe/3li9y3.png" />
 </div>
 
 &nbsp;<div align="center">
