@@ -1,22 +1,36 @@
 ``( Account used for Pony Town ! )``
 <div align="center"/>
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Island+Moments&size=40&pause=500&color=884773&center=true&width=435&lines=I+can't+get+out%2C;+can't+run+away%2C;there's+no+escaping+you+now.)](https://git.io/typing-svg)<br><br>
-<img src="https://files.catbox.moe/uxp903.png?size=600&quality=lossless" /> <br><br>
+<img width="1280" height="512" alt="image" src="https://files.catbox.moe/uxp903.png" />
+</div>
 
+&nbsp;<div align="center">
+
+$\LARGE\textcolor{#884773}{\textsf{c+h enc　𓏵　w2i}}$
+
+$\LARGE\textcolor{#884773}{\textsf{iwcau ` (S)he it Ask}}$
+
+<span style="color:#884773; font-family:sans-serif; font-size:2.5em;">
+  <a href="https://rentry.co/joyfulthought">👑</a>
+  <a href="https://archie.atabook.org/">atabook</a>
+  <a href="https://rentry.co/laid">rentry</a>
+</span>
+</div>
+
+&nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=archpup&label=　☆　&color=884773)
 
- <br>archie/bon/moroi <br> (S)he any Ask <br><br> every bonnie irl <br> feel free to int <br> C+H Enc !!! no need 2 ask :-) <br><br><img src="https://files.catbox.moe/oz6plp.png"/><br><br>
+</div>
 
+&nbsp;<div align="center">
+
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Island+Moments&size=40&pause=500&color=884773&center=true&width=435&lines=I+can't+get+out%2C;+can't+run+away%2C;there's+no+escaping+you+now.)](https://git.io/typing-svg)<br><br>
+
+</div>
  
-sign my [atabook](https://archie.atabook.org/)!! and if you wanna know <br> more about me you can browse my [rentries](https://rentry.co/laid) ^w^
 
 
-
- 
-<a href="https://rentry.co/joyfulthoughts">👑</a> ← crowns listed here
-
-
-
+&nbsp;<div align="center">
   <a href="https://last.fm/user/moroiis">
     <img width="310" src="https://lastfm.dedomil.workers.dev/moroiis?dark">
