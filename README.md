@@ -1,10 +1,10 @@
 ``( Account used for Pony Town ! )``
 <div align="center"/>
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Island+Moments&size=40&pause=500&color=91CFF4&center=true&width=435&lines=I+can't+get+out%2C;+can't+run+away%2C;there's+no+escaping+you+now.)](https://git.io/typing-svg)<br><br>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Island+Moments&size=40&pause=500&color=884773&center=true&width=435&lines=I+can't+get+out%2C;+can't+run+away%2C;there's+no+escaping+you+now.)](https://git.io/typing-svg)<br><br>
 <img src="https://files.catbox.moe/a9rsag.png?size=600&quality=lossless" /> <br><br>
 
-![](https://komarev.com/ghpvc/?username=archpup&label=　☆　&color=a0cce9)
+![](https://komarev.com/ghpvc/?username=archpup&label=　☆　&color=884773)
 
  <br>archie/bon/moroi <br> (S)he any Ask <br><br> every bonnie irl <br> feel free to int <br> C+H Enc !!! no need 2 ask :-) <br><br><img src="https://files.catbox.moe/oz6plp.png"/><br><br>
 
